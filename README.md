@@ -1,0 +1,1 @@
+# DA-property-analyse-202209
